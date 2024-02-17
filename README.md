@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @BlueDogsDev
+- 👀 I’m interested in Jave and Kotlin
+- 🌱 I’m currently learning kotlin
+- 💞️ I’m looking to collaborate on N/A
+- 📫 How to reach me you dont
+- 😄 Pronouns: She/Her/they/Them
+- ⚡ Fun fact: No
